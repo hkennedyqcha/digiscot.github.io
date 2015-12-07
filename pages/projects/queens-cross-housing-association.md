@@ -58,29 +58,30 @@ Establish blog and write sample content to inspire learners, establish plan for 
 
 ### Phase 4 April to September 2015
 
-Genealogical research begins – familiarize learners with the tools required and the recording possibilities
+Genealogical research begins – familiarize learners with the tools required and the recording possibilities. We started using the Ancestry.co.uk App and working with learners to become more comfortable at using this.
 
-Encourage some brief blogs about experience of using the internet to research family history
+Encourage some brief blogs about experience of using the internet to research family history. Using the blogging page was perhaps too ambitious, but we started to blog on behalf of the project and this model has proved more effective.
 
 Start to collect photographs and videos to create history map and blogposts. 
 
-Liaise with Youth Work Coordinator re working within the Youth Clubs, look at ways in which the Young People and Older People might work together
+Liaise with Youth Work Coordinator re working within the Youth Clubs, look at ways in which the Young People and Older People might work together.
 
-Establish a project plan for working with Young People in Youth Clubs and begin work with them
+Establish a project plan for working with Young People in Youth Clubs and begin work with them.
 
 ### Phase 5 September 2015 to January 2016
 
-Encourage learners to interview each other about their research and experiences, record this and upload to blog
+We are now running sessions in six locations across the Queens Cross Area. Members of our groups are enjoying building their family trees and sharing memories with each other. 
 
-Encourage learners to share their stories and findings via the blog
+Encourage learners to share their stories and findings via the blog. The blog is now up and running with entries being posted by William and written in conjunction with the groups.
 
-Bring together Older and Younger learners
+Bring together Older and Younger learners. We are currently working with a Youth Group in Woodside Library for Historical Connections. We have been using computers to research the history of the area and also looking at some of the images displayed in the library to spark our discussion.
 
+We are planning a cross-generational event to bring together the two types of group and share memories across the years.
 ### Phase 6 December 2015 to January 2016 
 
-Devise action plan to seek further funding to make project sustainable for the longer term
+Devise action plan to seek further funding to make project sustainable for the longer term. We are starting to consider plans to continue the project and seek further funding.
 
-Recruit Digital Ambassadors from groups for further training to then support the groups digitally
+Recruit Digital Ambassadors from groups for further training to then support the groups digitally. We have two Digital Ambassadors working on Historical Connections, one of whom is involved with the Young People and one who will be starting with the groups in Sheltered Housing.
 
 ## Evaluation
 
